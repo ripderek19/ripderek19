@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ripderek19
-- 👀 I’m interested in ... hookups cp and drugs
+- 👀 I’m interested in ... hookups and drugs
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... dickiedouche@gmail.com
